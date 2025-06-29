@@ -1,4 +1,4 @@
-# Hi there, I'm Muhgussap! 👋
+# Hi there, I'm Muhammad Agus Saputra! 👋
 
 🎓 **College Student**  
 I'm currently studying Informatics Engineering at East Borneo Muhammadiyah University.
